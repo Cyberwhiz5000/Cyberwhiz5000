@@ -1,4 +1,4 @@
-- 👋 Hi, I’m @Cyberwhiz5000
+- 👋 Hi, I’m Nonso Obiano
 - 👀 I’m interested in tech and customer support
 - 🌱 I’m currently learning how to be a better manager
 - 💞️ I’m looking to collaborate on all things related to customer support, team leadership and project management
